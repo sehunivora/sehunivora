@@ -3,3 +3,6 @@
 Me llamo Rosa y soy kpoper 
 ## Contact me:
 Me gustaría que puedas contactarme por mi Instagram 
+## Skills
+- Proactividad
+- Honestidad
